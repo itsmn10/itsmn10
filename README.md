@@ -1,4 +1,4 @@
-<h2 align="left">Hi 👋! My name is ... and I'm a ..., from ....</h2>
+<h2 align="left">I hope my name tastes like sardines to thse niggas</h2>
 
 ###
 
