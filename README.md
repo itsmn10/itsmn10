@@ -1,6 +1,4 @@
-[ReadMe.md](https://github.com/user-attachments/files/31097222/ReadMe.md)
-
-
+I hope my name tastes like sardines to these niggas.
 
 # 💫 About Me:
 An undergrad electronics engineer<br>Interested in Hardware & software engineering<br>AI/ML Enthusiast
